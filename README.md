@@ -52,8 +52,8 @@ This repo is my commitment to learning consistently while building a strong GitH
 ---
 
 ## 🚀 Connect with Me
-💼 [LinkedIn](https://linkedin.com/in/your-profile)  
-📧 your.email@example.com  
+💼 [LinkedIn](https://linkedin.com/in/poonam-singh023)  
+📧 2k23.cscys.2312542@gmail.com 
 
 ---
 
